@@ -5,8 +5,10 @@ I immediately fell in love with [Perplexity.ai](https://www.perplexity.ai/). It 
 
 My with ❤️ by [Saleh](https://twitter.com/SalehOfTomorrow)
 
-For submissions DM on Twitter
 
 
 # Random
 [New Malaria Drug](https://www.perplexity.ai/search/Malaria-Drugs-F9eWqBE.RO2JgPlmqi1kVg?s=c)
+
+# Submissions
+For submissions DM on Twitter
